@@ -11,3 +11,6 @@
 3. **Indus Waters Treaty Explained: Why India Wants to Renegotiate the 1960 Water-Sharing Pact with Pakistan**
    *Source:* Times of India
    https://timesofindia.indiatimes.com/education/news/indus-waters-treaty-explained-why-india-wants-to-renegotiate-the-1960-water-sharing-pact-with-pakistan/articleshow/132436216.cms
+4. **India Says It Thwarted Attacks by Pakistan-Backed Militants, Arrested Over 200**
+   *Source:* Reuters
+   https://www.reuters.com/world/asia-pacific/india-says-it-thwarted-attacks-by-pakistan-backed-militants-arrested-over-200-2026-08-17/
